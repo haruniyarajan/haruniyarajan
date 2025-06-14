@@ -44,7 +44,7 @@ I'm a **Data Scientist & Analytics Consultant** passionate about transforming co
 
 ## 🤝 Let's Connect!
 - 💼 [LinkedIn](https://linkedin.com/in/haruniya-rajan)
-- 📧 haruniyaa@gmail.com
+- 📧 haruniyarajan16@gmail.com
 - 📍 London, United Kingdom
 
 ---
